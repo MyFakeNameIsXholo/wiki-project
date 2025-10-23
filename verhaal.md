@@ -6,4 +6,4 @@ HEAD
 <p>Hij leerde veel over vrede en het leven buiten de strijd.</p>
 
 <p>Thorfinn leert over vriendschap en vergeving.</p>
-3a8fc961f027ca3af2a19c97c75eda881e0c0d46
+
