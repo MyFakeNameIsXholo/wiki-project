@@ -1,1 +1,2 @@
 # Verhaal
+<p>Thorfinn blijft vastberaden in zijn zoektocht naar wraak en rechtvaardigheid toen hij jong was. Later in het verhaal was hiervoor zijn groei en verlossing begonnen, uiteindelijk heeft hij Einar ontmoet en samen kwamen ze op idee om samen op advontuur te gaan. Een land te zoeken waar zich geen oorloog bevindt</p>
